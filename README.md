@@ -33,7 +33,6 @@ English, Urdu, little bit of french/what I've learned in school
   
 **Input any picture that represents you**  
 ![Britney meltdown smashing umbrella into car](http://4.bp.blogspot.com/_V_W-3BvIsnc/TUzujEFhw-I/AAAAAAAAAD4/EmQFjSMN_NA/w1200-h630-p-k-no-nu/britney+umbrella+attack.jpg)
-![man holding blobfish](https://pbs.twimg.com/media/C3rjz-ZUkAESFgk.jpg)
   
 **What you like to do on the weekend, weeknights.**  
 Honestly just watch tv or paint
